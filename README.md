@@ -1,1 +1,0 @@
-# torsdags-opgave-et
